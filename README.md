@@ -5,6 +5,6 @@ Don't Forget This Shit!
 Happiness
 --------
 
-* 10 instant tips to be happier now
+* [10 instant tips to be happier now]("/happiness/10_instant_tips.md")
 
 
