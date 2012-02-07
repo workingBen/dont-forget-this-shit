@@ -1,5 +1,6 @@
-Contained in this Repo is shit you should never forget. ~bpellow
+Don't Forget This Shit!
 ========
+### Contained within are trinkets of knowledge we should never forget
 
 Happiness
 --------
