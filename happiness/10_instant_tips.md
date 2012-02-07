@@ -95,3 +95,5 @@ Taking time to reflect, and making conscious steps to make your life happier, re
 
 --------
 http://articles.cnn.com/2009-08-04/living/rs.ten.ways.be.happier_1_happiness-project-feelings-big-impact
+
+Author of: http://www.amazon.com/Happiness-Project-Morning-Aristotle-Generally/dp/006158326X
