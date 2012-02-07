@@ -7,4 +7,5 @@ Happiness
 
 * [10 instant tips to be happier now]("http://github.com/workingBen/dont-forget-this-shit/blob/master/happiness/10_instant_tips.md")
 
-
+## Happiness
+see documentation [10 instant tips to be happier now](happiness/10_instant_tips.md)
