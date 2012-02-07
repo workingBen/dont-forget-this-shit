@@ -21,11 +21,13 @@ If I followed all the advice, I wanted to know, would it work?
 
 Well, the year is over, and I can say: It did. I made myself happier. And along the way I learned a lot about how to be happier. Here are those lessons.
 
-1. Don't start with profundities. When I began my Happiness Project, I realized pretty quickly that, rather than jumping in with lengthy daily meditation or answering deep questions of self-identity, I should start with the basics, like going to sleep at a decent hour and not letting myself get too hungry.
+### 1. Don't start with profundities.
+When I began my Happiness Project, I realized pretty quickly that, rather than jumping in with lengthy daily meditation or answering deep questions of self-identity, I should start with the basics, like going to sleep at a decent hour and not letting myself get too hungry.
 
 Science backs this up; these two factors have a big impact on happiness. Real Simple: 34 low-cost, make-you-smile ideas
 
-2. Do let the sun go down on anger. I had always scrupulously aired every irritation as soon as possible, to make sure I vented all bad feelings before bedtime.
+### 2. Do let the sun go down on anger.
+I had always scrupulously aired every irritation as soon as possible, to make sure I vented all bad feelings before bedtime.
 
 Studies show, however, that the notion of anger catharsis is poppycock.
 
