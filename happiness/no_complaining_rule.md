@@ -8,7 +8,7 @@ Research shows that 90% of complaining is mindless complaining, where no reasona
 Mindless complaining focuses on problems whereas justified complaining focuses on solutions.
 This rule generates the kind of positive energy and culture that attracts higher caliber employees who want to work in a positive environment. It also helps weed out negative employees since they just don't fit anymore.
 
-#### THE RULE:    
+#### THE RULE: 
 #### Employees are not allowed to mindlessly complain to their coworkers. If they have a problem or complaint about their job, their company, their customer, or anything else, they are encouraged to bring the issue to the manager or someone who is in a position to address the complaint. Howerver, the employees must share one or two possible solutions to their complaint as well.
 
 ## The Cost of Negativity
