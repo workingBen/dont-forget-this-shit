@@ -1,13 +1,13 @@
 # The No Complaining Rule
 
-WHY do we need THE RULE: Successful, positive companies with positive employees and positive cultures are created like anything else. Through a set of principles, processes, systems, and habits that are ingrained in the corporate culture and each individual employee. Positive companies aren't born. They are developed.   
+#### WHY do we need THE RULE: Successful, positive companies with positive employees and positive cultures are created like anything else. Through a set of principles, processes, systems, and habits that are ingrained in the corporate culture and each individual employee. Positive companies aren't born. They are developed.   
 We must relentlessly make our company culture and people a priority at all levels of the organization. It's like the root and fruit of a tree. The root, which is our culture, people, and spirit must be our focus. Instead of focusing so much on the fruit--profits, shipping products, hitting numbers--let's relentlessly nurture our root. If we do this, we will be very pleased with our fruit.
 
 Research shows that 90% of complaining is mindless complaining, where no reasonable solution exists for the complaint. For example, "Today Sucks."
 Mindless complaining focuses on problems whereas justified complaining focuses on solutions.
 This rule generates the kind of positive energy and culture that attracts higher caliber employees who want to work in a positive environment. It also helps weed out negative employees since they just don't fit anymore.
 
-THE RULE: Employees are not allowed to mindlessly complain to their coworkers. If they have a problem or complaint about their job, their company, their customer, or anything else, they are encouraged to bring the issue to the manager or someone who is in a position to address the complaint. Howerver, the employees must share one or two possible solutions to their complaint as well.
+#### THE RULE: Employees are not allowed to mindlessly complain to their coworkers. If they have a problem or complaint about their job, their company, their customer, or anything else, they are encouraged to bring the issue to the manager or someone who is in a position to address the complaint. Howerver, the employees must share one or two possible solutions to their complaint as well.
 
 ### The Cost of Negativity
 
@@ -43,27 +43,27 @@ THE RULE: Employees are not allowed to mindlessly complain to their coworkers. I
 ### No Complaining Week
 The goal of No Complaining Week is to become aware of how negative our thoughts and words cna be. The objective is to eliminate mindless complaining and negative thoughts as much as possible by replacing them with posistive thoughts and positive habits.
 
-REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light **paired with at least one or two possible solutions.
+#### REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light **paired with at least one or two possible solutions.
 
 #### Day 1: Monitor Your Thoughts and Words
-  - You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say. 
+  - You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say.    
 #### Day 2: Make a Gratitude List
-  - In a positive tone, objectively compare this workplace with your previous ones. Write a list of things you are thankful for here at OkCupid Labs. When you find yourself wanting to complain, focus on what you are grateful for instead. 
+  - In a positive tone, objectively compare this workplace with your previous ones. Write a list of things you are thankful for here at OkCupid Labs. When you find yourself wanting to complain, focus on what you are grateful for instead.    
 #### Day 3: Take a Thank-You Walk
-  - Take a walk, thinking of all the things you are grateful for. Try to remember the state of gratitude throughout the day after the walk.
+  - Take a walk, thinking of all the things you are grateful for. Try to remember the state of gratitude throughout the day after the walk.   
 #### Day 4: Focus on the Good Stuff
-  - Today, focus on everything that if right, rather than wrong. Focus on what others are doing right, not wrong. Praise instead of criticize. Focus on what you <i>get</i> to do instead of <i>have</i> to do.
+  - Today, focus on everything that if right, rather than wrong. Focus on what others are doing right, not wrong. Praise instead of criticize. Focus on what you <i>get</i> to do instead of <i>have</i> to do.   
 #### Day 5: Start a Success Journal
-  - Before you go to bed, write down the great interactions and accomplishments for the day. Use that as fuel for a more relaxed sleep and more fruitful following day.
+  - Before you go to bed, write down the great interactions and accomplishments for the day. Use that as fuel for a more relaxed sleep and more fruitful following day.   
 #### Day 6: Let Go
-  - Make a list of all the things you would like to complain about. Go through the list and identify things that are within your control. Identify possible solutions for any complaint under your control, and write <i>surrender</i> next to items beyond your control.
+  - Make a list of all the things you would like to complain about. Go through the list and identify things that are within your control. Identify possible solutions for any complaint under your control, and write <i>surrender</i> next to items beyond your control.   
 #### Day 7: Breathe
-  - Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.
+  - Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.   
 
 During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
 
 --------
-Posters: 
+Posters:    
 http://www.jongordon.com/documents/NCR-Poster-NoComplaingSlash.pdf   
 http://www.jongordon.com/documents/NCR-PosterNoComplainingZone.pdf   
 http://www.jongordon.com/documents/NCR-Poster-StayPositiveSmile.pdf   
