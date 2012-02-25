@@ -63,6 +63,12 @@ Day 7: Breathe
 During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
 
 --------
+Posters: 
+http://www.jongordon.com/documents/NCR-Poster-NoComplaingSlash.pdf   
+http://www.jongordon.com/documents/NCR-PosterNoComplainingZone.pdf   
+http://www.jongordon.com/documents/NCR-Poster-StayPositiveSmile.pdf   
+http://www.jongordon.com/documents/NCR-PosterNoComplainingEffect.pdf   
+
 Book: http://www.jongordon.com/thenocomplainingrule.html
 Authored by: Jon Gordon
 
