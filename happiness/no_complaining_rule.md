@@ -45,19 +45,19 @@ The goal of No Complaining Week is to become aware of how negative our thoughts 
 
 REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light **paired with at least one or two possible solutions.
 
-Day 1: Monitor Your Thoughts and Words
+#### Day 1: Monitor Your Thoughts and Words
   - You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say. 
-Day 2: Make a Gratitude List
+#### Day 2: Make a Gratitude List
   - In a positive tone, objectively compare this workplace with your previous ones. Write a list of things you are thankful for here at OkCupid Labs. When you find yourself wanting to complain, focus on what you are grateful for instead. 
-Day 3: Take a Thank-You Walk
+#### Day 3: Take a Thank-You Walk
   - Take a walk, thinking of all the things you are grateful for. Try to remember the state of gratitude throughout the day after the walk.
-Day 4: Focus on the Good Stuff
+#### Day 4: Focus on the Good Stuff
   - Today, focus on everything that if right, rather than wrong. Focus on what others are doing right, not wrong. Praise instead of criticize. Focus on what you <i>get</i> to do instead of <i>have</i> to do.
-Day 5: Start a Success Journal
+#### Day 5: Start a Success Journal
   - Before you go to bed, write down the great interactions and accomplishments for the day. Use that as fuel for a more relaxed sleep and more fruitful following day.
-Day 6: Let Go
+#### Day 6: Let Go
   - Make a list of all the things you would like to complain about. Go through the list and identify things that are within your control. Identify possible solutions for any complaint under your control, and write <i>surrender</i> next to items beyond your control.
-Day 7: Breathe
+#### Day 7: Breathe
   - Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.
 
 During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
