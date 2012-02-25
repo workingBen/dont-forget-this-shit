@@ -53,9 +53,11 @@ Focus on the things that you have the power to change, and let go of the things 
 Scientific research shows that daily practices reduce stress; boost positive energy; and promote health, vitality, and longevity. When you are faced with the urge to complain or you are feeling stressed to the max, stop, be still, plug-in to the ultimate power of meditation, and recharge.
 
 ## No Complaining Week
-The goal of No Complaining Week is to become aware of how negative our thoughts and words cna be. The objective is to eliminate mindless complaining and negative thoughts as much as possible by replacing them with posistive thoughts and positive habits.
+The goal of No Complaining Week is to become aware of how negative our thoughts and words can be. The objective is to eliminate mindless complaining and negative thoughts as much as possible by replacing them with posistive thoughts and positive habits.
 
-#### REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light **paired with at least one or two possible solutions.
+During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
+
+#### REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light *paired with at least one or two possible solutions.
 
 #### Day 1: Monitor Your Thoughts and Words
 You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say.    
@@ -79,7 +81,6 @@ Make a list of all the things you would like to complain about. Go through the l
 Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.   
 
 
-During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
 
 --------
 Posters:    
