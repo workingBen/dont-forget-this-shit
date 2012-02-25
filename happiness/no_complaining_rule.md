@@ -1,7 +1,8 @@
 # The No Complaining Rule
 
 #### WHY do we need THE RULE:    
-Successful, positive companies with positive employees and positive cultures are created like anything else. Through a set of principles, processes, systems, and habits that are ingrained in the corporate culture and each individual employee. Positive companies aren't born. They are developed.   
+Successful, positive companies with positive employees and positive cultures are created like anything else. Through a set of principles, processes, systems, and habits that are ingrained in the corporate culture and each individual employee. Positive companies aren't born. They are developed.
+
 We must relentlessly make our company culture and people a priority at all levels of the organization. It's like the root and fruit of a tree. The root, which is our culture, people, and spirit must be our focus. Instead of focusing so much on the fruit--profits, shipping products, hitting numbers--let's relentlessly nurture our root. If we do this, we will be very pleased with our fruit.
 
 Research shows that 90% of complaining is mindless complaining, where no reasonable solution exists for the complaint. For example, "Today Sucks."
