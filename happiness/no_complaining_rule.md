@@ -38,19 +38,19 @@ This rule generates the kind of positive energy and culture that attracts higher
 ## Five Things to Do Instead of Complain
 
 #### 1. Practice Gratitude
-  - Research shows that when we count three blessings a day, we get a measurable boost in happiness that uplifts and energizes us. It's also physiologically impossible to be stressed and thankful at the same time. Two such emotions cannot occupy our mind at the same time. If you are focusing on gratitude, you can't be negative. You can also energize and engage your coworkers by letting them know you are grateful for them and their lives.
+Research shows that when we count three blessings a day, we get a measurable boost in happiness that uplifts and energizes us. It's also physiologically impossible to be stressed and thankful at the same time. Two such emotions cannot occupy our mind at the same time. If you are focusing on gratitude, you can't be negative. You can also energize and engage your coworkers by letting them know you are grateful for them and their lives.
 
 #### 2. Praise Others
-  - Instead of complaining about what others are doing wrong, start focusing on what they are doing right. Praise them and watch as they create more success as a result. Of course, point out their mistakes so they can learn and grow, but make sure you give three times as much praise as criticism.
+Instead of complaining about what others are doing wrong, start focusing on what they are doing right. Praise them and watch as they create more success as a result. Of course, point out their mistakes so they can learn and grow, but make sure you give three times as much praise as criticism.
 
 #### 3. Focus on Success
-  - Start a success journal. Each night before you go to bed, write down the one great thing about your day. The one great converstaion, accomplishment, or win that you are most proud of. Focus on your success and you'll look forward to creating more success tomorrow.
+Start a success journal. Each night before you go to bed, write down the one great thing about your day. The one great converstaion, accomplishment, or win that you are most proud of. Focus on your success and you'll look forward to creating more success tomorrow.
 
 #### 4. Let Go
-  - Focus on the things that you have the power to change, and let go of the things that are beyond your control. You'll be amazed that when you stop trying to control everything, it all somehow works out.
+Focus on the things that you have the power to change, and let go of the things that are beyond your control. You'll be amazed that when you stop trying to control everything, it all somehow works out.
 
 #### 5. Meditate
-  - Scientific research shows that daily practices reduce stress; boost positive energy; and promote health, vitality, and longevity. When you are faced with the urge to complain or you are feeling stressed to the max, stop, be still, plug-in to the ultimate power of meditation, and recharge.
+Scientific research shows that daily practices reduce stress; boost positive energy; and promote health, vitality, and longevity. When you are faced with the urge to complain or you are feeling stressed to the max, stop, be still, plug-in to the ultimate power of meditation, and recharge.
 
 ## No Complaining Week
 The goal of No Complaining Week is to become aware of how negative our thoughts and words cna be. The objective is to eliminate mindless complaining and negative thoughts as much as possible by replacing them with posistive thoughts and positive habits.
@@ -58,25 +58,25 @@ The goal of No Complaining Week is to become aware of how negative our thoughts 
 #### REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light **paired with at least one or two possible solutions.
 
 #### Day 1: Monitor Your Thoughts and Words
-  - You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say.    
+You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say.    
 
 #### Day 2: Make a Gratitude List
-  - In a positive tone, objectively compare this workplace with your previous ones. Write a list of things you are thankful for here at OkCupid Labs. When you find yourself wanting to complain, focus on what you are grateful for instead.    
+In a positive tone, objectively compare this workplace with your previous ones. Write a list of things you are thankful for here at OkCupid Labs. When you find yourself wanting to complain, focus on what you are grateful for instead.    
 
 #### Day 3: Take a Thank-You Walk
-  - Take a walk, thinking of all the things you are grateful for. Try to remember the state of gratitude throughout the day after the walk.   
+Take a walk, thinking of all the things you are grateful for. Try to remember the state of gratitude throughout the day after the walk.   
 
 #### Day 4: Focus on the Good Stuff
-  - Today, focus on everything that if right, rather than wrong. Focus on what others are doing right, not wrong. Praise instead of criticize. Focus on what you <i>get</i> to do instead of <i>have</i> to do.   
+Today, focus on everything that if right, rather than wrong. Focus on what others are doing right, not wrong. Praise instead of criticize. Focus on what you <i>get</i> to do instead of <i>have</i> to do.   
 
 #### Day 5: Start a Success Journal
-  - Before you go to bed, write down the great interactions and accomplishments for the day. Use that as fuel for a more relaxed sleep and more fruitful following day.   
+Before you go to bed, write down the great interactions and accomplishments for the day. Use that as fuel for a more relaxed sleep and more fruitful following day.   
 
 #### Day 6: Let Go
-  - Make a list of all the things you would like to complain about. Go through the list and identify things that are within your control. Identify possible solutions for any complaint under your control, and write <i>surrender</i> next to items beyond your control.   
+Make a list of all the things you would like to complain about. Go through the list and identify things that are within your control. Identify possible solutions for any complaint under your control, and write <i>surrender</i> next to items beyond your control.   
 
 #### Day 7: Breathe
-  - Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.   
+Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.   
 
 
 During the week keep a "Complaint Shoebox" where any legitimate complaint should be filed for review at the end of the week. Include a possible solution for any complaint added to the Complaint Box.
