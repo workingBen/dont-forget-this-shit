@@ -26,13 +26,13 @@ This rule generates the kind of positive energy and culture that attracts higher
 ## Three No Complaining Tools
 
 #### 1. The But -> Positive Technique   
-  - This simple strategy helps you turn your complaints into positive thoughts, solutions and actions. It works like this. When you realize you are complaining, you simply add the word <i>but</i> and then add a positive thought or positive action. Example: "I dont like driving to work for an hour <i>but</i> I'm thankful I have a job to drive to and a car to drive there in."
+This simple strategy helps you turn your complaints into positive thoughts, solutions and actions. It works like this. When you realize you are complaining, you simply add the word <i>but</i> and then add a positive thought or positive action. Example: "I dont like driving to work for an hour <i>but</i> I'm thankful I have a job to drive to and a car to drive there in."
 
 #### 2. Focus on "Get To" instead of "Have to"
-  - Too often we complain and focus on what we <i>have</i> to do. We say things like "I have to go to work" "I have to drive here" "I have to do this." Instead, shift your perspective and realize it's not about having to do anything. You get to do things. You get to live this life. You get to go to work while so many others are unemployed. Focus on what you get to do. Focus on feeling blessed instead of stressed. Focus on gratitude.
+Too often we complain and focus on what we <i>have</i> to do. We say things like "I have to go to work" "I have to drive here" "I have to do this." Instead, shift your perspective and realize it's not about having to do anything. You get to do things. You get to live this life. You get to go to work while so many others are unemployed. Focus on what you get to do. Focus on feeling blessed instead of stressed. Focus on gratitude.
 
 #### 3. Turn Complaints into Solutions
-  - The goal is not to eliminate all complaining. The intent is to eliminate the kind of mindless complaining that doesn't serve a greater purpose and allow compalining that is justified and worthwhle. The opposite of mindless complaining is justified complaining. The former is negative and the latter is positive. The difference is intent. With <i>mindless complaining</i>, you are mindlessly focusing on problems; however, with <i>justified complaining</i> you identify a problem and the complaint moves you toward a solution. Every complaint represents an opportunity to turn a negative into a positive.
+The goal is not to eliminate all complaining. The intent is to eliminate the kind of mindless complaining that doesn't serve a greater purpose and allow compalining that is justified and worthwhle. The opposite of mindless complaining is justified complaining. The former is negative and the latter is positive. The difference is intent. With <i>mindless complaining</i>, you are mindlessly focusing on problems; however, with <i>justified complaining</i> you identify a problem and the complaint moves you toward a solution. Every complaint represents an opportunity to turn a negative into a positive.
 
 
 ## Five Things to Do Instead of Complain
