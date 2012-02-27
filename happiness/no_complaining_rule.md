@@ -1,4 +1,4 @@
-DISCLAIMER: This is not original work. It is a condensed version of a good book by Jon Gordon called "The No Complaining Rule". If you like this, his book is available through the link at the bottom of this page. <!---As of Monday, Feb. 27, 2012 OkCupid Labs has started No Complaining Week.-->   
+DISCLAIMER: This is not original work. It is a condensed version of a good book by Jon Gordon called "The No Complaining Rule". If you like this, his book is available through the link at the bottom of this page.
 
 # The No Complaining Rule
 
