@@ -14,7 +14,7 @@ This rule generates the kind of positive energy and culture that attracts higher
 #### THE RULE: 
 #### Employees are not allowed to mindlessly complain to their coworkers. 
 #### Addition to THE RULE: 
-#### If they have a problem or complaint about their job, their company, their customer, or anything else, they are encouraged to bring the issue to the manager or someone who is in a position to address the complaint. Howerver, the employees must share one or two possible solutions to their complaint as well.
+#### If an employee has a problem or complaint about their job, their company, their customer, or anything else, they are encouraged to bring the issue to the manager or someone who is in a position to address the complaint. The employee, however, must share one or two possible solutions to their complaint as well.
 
 ## The Cost of Negativity
 
