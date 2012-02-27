@@ -59,6 +59,7 @@ During the week keep a "Complaint Shoebox" where any legitimate complaint should
 
 #### REMEMBER: For the entire week you should not complain. If you have a complaint, voice it in a positive light *paired with at least one or two possible solutions.
 
+<!--(
 #### Day 1: Monitor Your Thoughts and Words
 You'll be amazed at the thoughts that pop into your head and come out of your mouth. The key is to become more conscious of what you think and say.    
 
@@ -79,7 +80,7 @@ Make a list of all the things you would like to complain about. Go through the l
 
 #### Day 7: Breathe
 Spend 10 minutes in silence. Focus on your breathing while meditating to transfor stress into positive energy. Throughout the day, anytime you find yourself stressed or wanting to complain, stop for 10 seconds and breathe deeply.   
-
+)-->
 
 
 --------
